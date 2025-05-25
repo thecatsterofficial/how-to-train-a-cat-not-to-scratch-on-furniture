@@ -1,0 +1,1 @@
+# how-to-train-a-cat-not-to-scratch-on-furniture
